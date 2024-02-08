@@ -4,8 +4,11 @@ MICROBIOLOGY | MOLECULAR EPIDEMIOLOGY | VETERINARY MEDICINE & SURGERY | DATA SCI
 
 
 	A driven and results-focused professional who has achieved multiple qualifications and pursued a successful career in the government, veterinary, research and tertiary sectors in New Zealand and internationally. Specialist in research relating to animal health, including drug development. Brings expertise in research management, capturing data, carrying out comprehensive data analysis, establishing surveillance programmes, and providing well researched insights to organisations. Highly values roles that are collaborative, inter-disciplinary and cognisant of the knowledge, expertise and experience held by others. 
+
 	Specialist in scientific roles that impact decision making for stakeholders, ensure seamless study execution, and provide superior quality assurance. Trained in Good Clinical Practice, treats people with respect, believes in openness and transparency and actively participates in knowledge sharing. Strong project management skills, able to work in multicultural settings. Experienced teacher and lecturer, has managed up to 20 multidisciplinary staff and taught University level students.
+
 Career Overview 
+
 Expert Contributor – World Health Organisation | Current
 Teaching Technician – Massey University, School of Veterinary Science, Palmerston North | 2022
 Epidemiologist – VetSouth Ltd, Otago | 2018 – 2021
